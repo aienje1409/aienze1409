@@ -1,4 +1,4 @@
-# Hi, I'm Anjali Yadav 👋
+# Hi, I'm Anjali Yadav
 
 🎓 B.Tech Computer Science and Engineering student, graduating in 2028.
 
